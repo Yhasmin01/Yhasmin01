@@ -8,6 +8,6 @@ If you have any questions or suggestions, please do not hesitate to contact me.
 
 Thank you for visiting my profile!
 
-[![Instagram Yhasmin](https://img.shields.io/badge/-@ss__yhasmin-F44747?style=flat-square&labelColor=F44747&logo=instagram&logoColor=white&link=https://instagram.com/ss_yhasmin)](https://www.instagram.com/ss_yhasmin/) [![Linkedin Yhasmin](https://img.shields.io/badge/-Yhasmin_Souza_e_Silva-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/yhasmin-souza-e-silva-7602ab239/)](https://www.linkedin.com/in/yhasmin-souza-e-silva-7602ab239/) [![Gmail Yhasmin](https://img.shields.io/badge/-yhasminsouzaesilva@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:yhasminsouzaesilva@gmail.com)](mailto:yhasminsouzaesilva@gmail.com)
+[![Instagram Yhasmin](https://img.shields.io/badge/-@minmundotech-F44747?style=flat-square&labelColor=F44747&logo=instagram&logoColor=white&link=https://www.instagram.com/minmundotech/)](https://www.instagram.com/minmundotech/) [![Linkedin Yhasmin](https://img.shields.io/badge/-Yhasmin_Souza_e_Silva-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/yhasmin-souza-e-silva-7602ab239/)](https://www.linkedin.com/in/yhasmin-souza-e-silva-7602ab239/) [![Gmail Yhasmin](https://img.shields.io/badge/-yhasminsouzaesilva@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:yhasminsouzaesilva@gmail.com)](mailto:yhasminsouzaesilva@gmail.com)
 
 <br>
