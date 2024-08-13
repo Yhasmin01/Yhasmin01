@@ -1,5 +1,3 @@
-<img align="left" src="https://th.bing.com/th/id/OIG.By5F5el.CF1sJFnMc5Z_?pid=ImgGn" width="30%" height="30%">
-
 ### Hey!
 
 I'm **Yhasmin**, I am a beginner developer, but I am always learning and challenging myself, I love creating new things and seeing how technology can be used to solve real-world problems, I am always looking for new opportunities to learn and grow as a developer.
